@@ -1,4 +1,4 @@
-## Graduate-Qualitative-Research
+## Graduate-Qualitative-Research-Study
 "The Emotional Effects of Multiple Season Ending Injuries in Collegiate Athletes"
 
 ### Abstract
